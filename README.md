@@ -7,3 +7,7 @@ Ann Arbor in Michigan has full exemptions for really low income and a decent tec
 https://annarborusa.org/why-ann-arbor/industries/artificial-intelligence.
 https://www.redfin.com/MI/Ann-Arbor/2693-Laurentide-Dr-48103/home/59341285.
 https://www.a2gov.org/finance-and-administrative-services/assessing/property-taxes.
+Check out this Cybertrailer:
+https://www.livingvehicle.com/blog/cybertrailer-by-living-vehicle-the-future-of-adventure-travel-with-total-resource-independence.
+Understand some people are more vulnerable:
+https://www.lifemoves.org/san-mateo-county-celebrates-new-240-unit-navigation-center.
