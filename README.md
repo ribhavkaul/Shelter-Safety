@@ -2,11 +2,8 @@ Due to the regressive nature of property taxes, I have taken things into my own 
 https://www.usa.gov/eviction-and-foreclosure.
 https://sco.ca.gov/ardtax_prop_tax_postponement.html.
 https://www.sccassessor.org/faq/understanding-proposition-13.
-https://www.redfin.com/CA/Sunnyvale/1220-Tasman-Dr-94089/unit-328/home/1801098.
-California/Silicon Valley Model:
-https://www.desmos.com/calculator/isg0mxh3fr.
-https://chatgpt.com/c/6858d778-e1a8-8001-89c8-3539d4957a7d.
-Detroit has full exemptions for really low income so that is another thing to consider:
-https://www.redfin.com/MI/Detroit/8790-Arlington-St-48212/home/196198611.
-https://detroitmi.gov/government/mayors-office/chief-financial-officer/homeowners-property-exemption-hope.
-https://www.nucamp.co/blog/coding-bootcamp-detroit-mi-top-10-tech-companies-to-work-for-in-detroit-in-2025.
+https://www.redfin.com/CA/San-Jose/2151-Oakland-Rd-95131/unit-330/home/63745251.
+Ann Arbor in Michigan has full exemptions for really low income and a decent tech industry. See poverty exemption from last link which is about property taxes:
+https://annarborusa.org/why-ann-arbor/industries/artificial-intelligence.
+https://www.redfin.com/MI/Ann-Arbor/2693-Laurentide-Dr-48103/home/59341285.
+https://www.a2gov.org/finance-and-administrative-services/assessing/property-taxes.
