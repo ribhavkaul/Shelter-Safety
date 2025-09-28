@@ -4,6 +4,7 @@ https://www.usa.gov/eviction-and-foreclosure.
 https://www.ftb.ca.gov/forms/misc/3561C-PC.pdf.
 https://sco.ca.gov/ardtax_prop_tax_postponement.html.
 https://www.boe.ca.gov/proptaxes/homeowners_exemption.htm.
+https://chatgpt.com/c/68c7f66c-eae4-8326-8d60-29758bd4d5ec.
 https://www.sccassessor.org/faq/understanding-proposition-13.
 https://osh.santaclaracounty.gov/get-assistance/risk-losing-housing-we-can-help.
 https://www.redfin.com/CA/San-Jose/2151-Oakland-Rd-95131/unit-330/home/63745251.
